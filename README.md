@@ -1,2 +1,4 @@
 # MetaSocialMediaMarketing
-Meta Social Media Marketing Professional Certificate
+## Meta Social Media Marketing Professional Certificate
+
+Want to turn your passion for social media into a career? In this program, you’ll learn how to create a social media presence on Facebook and Instagram that people want to follow! Social media marketing jobs are amongst the most in-demand skills for organizations of all sizes. Whether you’re completely new to digital marketing or you’ve been tinkering with social media platforms for your own business, you’ve come to the right place. This six-course program designed by experts at Meta and Aptly will provide an introduction to digital marketing and all the major social media platforms such as Facebook, Instagram, LinkedIn, YouTube, TikTok  and more to prepare you with the skills and tools needed to grow an engaging social community and run effective social media advertising.
